@@ -1,1 +1,1 @@
-### I'm Nasibullokh Atabaev <img src="<iframe src="https://giphy.com/embed/g8uk5CmBJC3xVRPO1J" width="480" height="480" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/Evonik-evonik-leadingbeyondchemistry-g8uk5CmBJC3xVRPO1J">via GIPHY</a></p>">
+### I'm Nasibullokh Atabaev 👌👌👌👌👌👌👌👌
